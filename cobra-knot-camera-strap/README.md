@@ -1,6 +1,6 @@
 # Cobra Knot Camera Strap
 
-The Cobra knot generally requires about 1' of paracord for every 1'' of lenthg that you want out of it.
+The Cobra knot generally requires about 1' of paracord for every 1'' of length that you want out of it.
 
 I created a paracord strap to be hung cross shoulder and hang near my hip.  
 
